@@ -23,7 +23,7 @@ Computer Science graduate (B.S., Prairie View A&M University) focused on **cyber
 - 🎓 B.S. Computer Science — Prairie View A&M University (2026)
 - 🏆 Cybersecurity competitor — Sandia National Laboratories Tracer Fire Competition
 - 🔬 Research Assistant — PVAMU National Center for Infrastructure Transformations
-- 💜 2nd Vice President, Omega Gamma Chapter — Zeta Phi Beta Sorority, Inc.
+- 💜 Member, Zeta Phi Beta Sorority, Inc. — Omega Gamma Chapter; served as 2nd Vice President (Spring 2025 – Spring 2026)
 
 ## 📫 Let's connect
 
